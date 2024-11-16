@@ -95,7 +95,7 @@ La industrialización textil tuvo un profundo impacto en la **estructura social 
 
 +  **Acceso democratizado a textiles:**  
     Por otro lado, la industrialización también benefició a las clases populares, que por primera vez pudieron acceder a **ropa asequible**. Esto marcó un cambio en los estándares de consumo y moda, haciendo de los textiles un bien básico y no un lujo.
-   <img src="https://via.placeholder.com/800](https://fashinnovation.nyc/wp-content/uploads/2022/04/Charles-Frederick-Worth-em-seu-atelier-House-of-Worth-1858-1952-Photo-Researchgate.net_.png" alt="Ejemplo de imagen" width="300">
+
 ![El diseñador de modas inglés Charles-Frederick-Worth, considerado el padre de la alta costura](https://fashinnovation.nyc/wp-content/uploads/2022/04/Charles-Frederick-Worth-em-seu-atelier-House-of-Worth-1858-1952-Photo-Researchgate.net_.png)
 
 *El diseñador de modas inglés Charles-Frederick-Worth, considerado el padre de la alta costura. Fuente: [Fashinnovation](https://fashinnovation.nyc/fashinnovation-industrial-revolution-fashion/)*
