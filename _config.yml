@@ -1,3 +1,1 @@
-remote-theme: just-the-docs
-header_pages: []
-title:
+theme: jekyll-theme-lanyon
